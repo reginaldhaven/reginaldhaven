@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @reginaldhaven
 - 👀 I’m interested in biochemistry, aviation,optimization ...
-- 🌱 I’m currently learning anythingbi can miltiple yimes every day
-- 💞️ I’m looking to collaborate on ones bedt self
+- 🌱 I’m currently learning anything i can multiple times every day
+- 💞️ I’m looking to collaborate on ones best self
 - 📫 How to reach me : reginaldhaven422@gmail.com
 - 😄 Pronouns: keep it simple. If in doubt a proper noun always shows interest!!
 - ⚡ Fun fact: Can push 400 lbs seated leg press. 
